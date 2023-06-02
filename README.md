@@ -1,6 +1,8 @@
 # training
 
 
-Adia Umulisa 
+Adia Umulisa
+
+Beatrice is SUPER nice 
 
 
